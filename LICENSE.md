@@ -1,4 +1,4 @@
-
+Enhance Trello for macOS with updated Trello for macOS Automation | task automation + cloud backup, the #1 automation. Includes task automation and cloud backup for a smoother
 
 
 
